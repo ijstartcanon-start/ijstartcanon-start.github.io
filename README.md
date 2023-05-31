@@ -1,1 +1,0 @@
-# ijstartcanon-start.github.io
